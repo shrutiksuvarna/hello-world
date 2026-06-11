@@ -6,4 +6,4 @@ I graduated from the University of California, Riverside in June 2025 with a deg
 I like to eat ice cream
 My favorite flavor is strawberry.
 
-HAHA
+
